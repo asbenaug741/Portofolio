@@ -1,1 +1,2 @@
-# portal-berita
+# Durung Ono
+# Sing sabar
